@@ -1,2 +1,1 @@
-# APEX-LEGENDS-VIRTUAL-VICTORY
-APEX LEGENDS HACK
+https://discord.gg/UyynNDQc
